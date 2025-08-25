@@ -61,58 +61,6 @@ Before the possibilities came true
 #![](https://i.pinimg.com/736x/33/ed/83/33ed8344a581b990ee2aea2b23196ac2.jpg)
 
 
-Smiling right from ear to ear
-Almost laughed herself to tears
-Must have stabbed him fifty fucking times
-I can't believe it
-Ripped his heart out right before his eyes
-Eyes over easy, eat it, eat it, eat it (eat the shit out of it)
-Now that it's done, I realize the error of my ways
-I must venture back to apologize from somewhere far beyond the grave
-I gotta make up for what I've done
-'Cause I was all up in a piece of heaven
-While you burned in hell, no peace forever
-'Cause I really always knew that my little crime
-Would be cold, that's why I got a heater for your thighs
-And I know, I know it's not your time
-But bye, bye
-And a word to the wise, when the fire dies
-You think it's over but it's just begun
-But baby, don't cry
-You had my heart, at least for the most part
-'Cause everybody's gotta die sometime
-We fell apart, let's make a new start
-'Cause everybody's gotta die sometime, yeah, yeah
-But baby, don't cry
-I will suffer for so long (what will you do, not long enough)
-To make it up to you (I pray to God that you do)
-I'll do whatever you want me to do (well, then, I'll grant you one chance)
-And if it's not enough (if it's not enough, if it's not enough)
-If it's not enough (not enough)
-Try again (try again)
-And again (and again)
-Over and over again
-We're coming back, coming back
-We'll live forever, live forever
-Let's have wedding, have a wedding
-Let's start the killing, start the killing
-Do you take this man in death for the rest of your unnatural life
-Yes, I do
-Do you take this woman in death for the rest of your unnatural life
-I do
-I now pronounce you
-Because I really always knew that my little crime
-Would be cold, that's why I got a heater for your thighs
-And I know, I know it's not your time
-But bye, bye
-And a word to the wise, when the fire dies
-You think it's over but it's just begun
-But baby, don't cry
-You had my heart, at least for the most part
-'Cause everybody's gotta die sometime
-We fell apart, let's make a new start, oh
-'Cause everybody's gotta die sometime, yeah, yeah
-But baby, don't cry
 
 ## My Social Sedia is active
 <div align="left">
