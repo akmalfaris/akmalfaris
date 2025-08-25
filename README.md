@@ -1,6 +1,5 @@
+![](https://images.pexels.com/photos/15290770/pexels-photo-15290770.jpeg)
 
-
-![](https://images.pexels.com/photos/15334615/pexels-photo-15334615.jpeg)
 
 
 
@@ -51,17 +50,6 @@ Our love had been so strong for far too long
 I was weak with fear that somethin' would go wrong
 Before the possibilities came true
 
-#![](https://i.pinimg.com/1200x/38/4c/86/384c86e796ef3b67a433b2f4e5452a91.jpg)
-
-
-
-
-![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2xjcGQ1emRqNWZqNDd5YmhyZmk2bG5naXlmY21wY3p1cHVwanRiZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o72FdkcTX4DsfaSSQ/giphy.gif)
-
-![](<img width="544" height="306" alt="image" src="https://github.com/user-attachments/assets/33e4853d-2d72-458e-834e-270af623692b" />)
-
-
-#![](https://i.pinimg.com/736x/33/ed/83/33ed8344a581b990ee2aea2b23196ac2.jpg)
 
 
 
