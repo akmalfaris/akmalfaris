@@ -1,4 +1,4 @@
-## Hi there 👋
+## fortis fortuna adiuvot ☠️
 
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph-dark.svg">
