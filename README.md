@@ -1,18 +1,6 @@
-## Fortis Fortuna Adiuvot ☠️
+![](https://i.pinimg.com/1200x/6d/c1/f7/6dc1f741fccbd3e8aac9ecb1f29d9bad.jpg)
 
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph-dark.svg">
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph.svg">
-  <img alt="pacman contribution graph" src="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph.svg">
-</picture>
 
-## Before the story begins, is it such a sin
-For me to take what's mine, until the end of time?
-We were more than friends, before the story ends
-And I will take what's mine, create what God would never design
-Our love had been so strong for far too long
-I was weak with fear that somethin' would go wrong
-Before the possibilities came true
 I took all possibility from you
 Almost laughed myself to tears
 Conjuring her deepest fears (come here you fucking bitch)
@@ -41,6 +29,38 @@ Now possibilities I'd never considered
 Are occurring the likes of which I'd never heard
 Now an angry soul comes back from beyond the grave
 To repossess a body with which I'd misbehaved
+
+## 
+
+## Fortis Fortuna Adiuvot ☠️
+
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph-dark.svg">
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph.svg">
+  <img alt="pacman contribution graph" src="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph.svg">
+</picture>
+
+## Before the story begins, is it such a sin
+For me to take what's mine, until the end of time?
+We were more than friends, before the story ends
+And I will take what's mine, create what God would never design
+Our love had been so strong for far too long
+I was weak with fear that somethin' would go wrong
+Before the possibilities came true
+
+#![](https://i.pinimg.com/1200x/38/4c/86/384c86e796ef3b67a433b2f4e5452a91.jpg)
+
+
+
+
+![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2xjcGQ1emRqNWZqNDd5YmhyZmk2bG5naXlmY21wY3p1cHVwanRiZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o72FdkcTX4DsfaSSQ/giphy.gif)
+
+![](<img width="544" height="306" alt="image" src="https://github.com/user-attachments/assets/33e4853d-2d72-458e-834e-270af623692b" />)
+
+
+#![](https://i.pinimg.com/736x/33/ed/83/33ed8344a581b990ee2aea2b23196ac2.jpg)
+
+
 Smiling right from ear to ear
 Almost laughed herself to tears
 Must have stabbed him fifty fucking times
