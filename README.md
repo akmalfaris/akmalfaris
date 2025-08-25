@@ -6,4 +6,55 @@
   <img alt="pacman contribution graph" src="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph.svg">
 </picture>
 
+## My Social Sedia is active
+<div align="left">
+  <img src="https://raw.githubusercontent.com/maurodesouza/profile-readme-generator/master/src/assets/icons/social/whatsapp/default.svg" width="52" height="40" alt="whatsapp logo"  />
+  <img src="https://raw.githubusercontent.com/maurodesouza/profile-readme-generator/master/src/assets/icons/social/instagram/default.svg" width="52" height="40" alt="instagram logo"  />
+</div>
+
+## Process
+
+<div align="left">
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg" height="40" alt="html5 logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=css" height="40" alt="css logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=js" height="40" alt="javascript logo"  />
+  <img width="12" />
+  <img src="https://cdn.simpleicons.org/laravel/FF2D20" height="40" alt="laravel logo"  />
+  <img width="12" />
+  <img src="https://cdn.simpleicons.org/mysql/4479A1" height="40" alt="mysql logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/nodejs/nodejs-original.svg" height="40" alt="nodejs logo"  />
+  <img width="12" />
+  <img src="https://cdn.simpleicons.org/php/777BB4" height="40" alt="php logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=py" height="40" alt="python logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/unity/unity-original.svg" height="40" alt="unity logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=ps" height="40" alt="adobephotoshop logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=pr" height="40" alt="adobepremierepro logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=figma" height="40" alt="figma logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=powershell" height="40" alt="powershell logo"  />
+  <img width="12" />
+  <img src="https://skillicons.dev/icons?i=blender" height="40" alt="blender logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/wordpress/wordpress-original.svg" height="40" alt="wordpress logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/windows8/windows8-original.svg" height="40" alt="windows8 logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/linux/linux-original.svg" height="40" alt="linux logo"  />
+</div>
+
 ###
+
+###
+
+<div align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=akmalfaris.akmalfaris&"  />
+</div>
+
