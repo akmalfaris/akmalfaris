@@ -1,4 +1,4 @@
-## fortis fortuna adiuvot ☠️
+## Fortis Fortuna Adiuvot ☠️
 
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/akmalfaris/akmalfaris/output/pacman-contribution-graph-dark.svg">
